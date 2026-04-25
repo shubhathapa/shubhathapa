@@ -16,7 +16,7 @@
 ## 📫 How to reach me
 
 - Email: <shubha7181@gmail.com>
-- LinkedIn: [<shubha thapa>](https://www.linkedin.com/in/shubha-thapa-4a4478258/)
+- LinkedIn:<https://www.linkedin.com/in/shubha-thapa-4a4478258/>
 
 ## ⚡ A little more about me
 
